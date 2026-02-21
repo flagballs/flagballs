@@ -1,10 +1,10 @@
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=flagballs&color=c6363c&base=0&label=Ribbons+Tied)
+![](https://komarev.com/ghpvc/?username=flagballs&color=ca8478&base=0&label=Ribbons+Tied)
 <div align="center">
 <div align="center">
 
 [rentry](https://rentry.co/cakeslice)ㅤ᯽ㅤ[prns](https://pronouns.cc/@nakano)󠀠󠀠󠀠󠀠ㅤ᯽ㅤ[atabook](https://nakano.atabook.org/)
 <br>
 <br>
-<img src="https://file.garden/Z3fis1xsb21HAp-V/polandball" width="250" height="380">
+<img src="https://files.catbox.moe/xe9rru.jpg" width="250" height="380">
