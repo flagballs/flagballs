@@ -7,4 +7,4 @@
 [rentry](https://rentry.co/cakeslice)ㅤ᯽ㅤ[prns](https://pronouns.cc/@nakano)󠀠󠀠󠀠󠀠ㅤ᯽ㅤ[atabook](https://nakano.atabook.org/)
 <br>
 <br>
-<img src="https://files.catbox.moe/188pul.png" width="250" height="380">
+<img src="https://file.garden/Z3fis1xsb21HAp-V/polandball" width="250" height="380">
