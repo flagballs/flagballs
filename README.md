@@ -7,4 +7,4 @@
 [rentry](https://rentry.co/pol)ㅤ᯽ㅤ[prns](https://pronouns.cc/@nakano)󠀠󠀠󠀠󠀠ㅤ᯽ㅤ[atabook](https://nakano.atabook.org/)
 <br>
 <br>
-<img src="https://files.catbox.moe/xe9rru.jpg" width="250" height="380">
+<img src="https://files.catbox.moe/xe9rru.jpg" width="250" height="310">
